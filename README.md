@@ -1,3 +1,3 @@
 # gilbbangsimulator
 
-망충 나율이
+망충 벼리짱
